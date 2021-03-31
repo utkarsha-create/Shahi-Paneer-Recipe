@@ -1,1 +1,1 @@
-# Shahi-Paneer-Recipe
+Shahi Paneer Recipe
